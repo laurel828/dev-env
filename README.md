@@ -6,7 +6,6 @@ my dev. environments :p :) :-( ::)
 How are You ?
 fine 
 
-잘지냈어요?
-아니요
-
 I want a business that make a lot of money 
+
+You drank a lot yesterday
